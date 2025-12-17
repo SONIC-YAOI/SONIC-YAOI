@@ -11,4 +11,5 @@
   
   ⊂⊃ under 13 dni unless i int first﹕b <3 , w , e , z , s , l , v ◞ 
   </div>
-![](https://i.postimg.cc/J4jpGFQP/Untitled1326-20251217233918.png)
+
+  https://i.postimg.cc/J4jpGFQP/Untitled1326-20251217233918.png
