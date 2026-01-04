@@ -8,7 +8,9 @@
  
   ╰╮00﹒he they \ 16
   
-  ⊂⊃ under 13 dni unless i int first﹕b <3 , w , e , z , s , l , v ◞ 
+  ⊂⊃ under 13 dni unless i int first﹕b <3 , w , e , z , s , l , v , k◞ 
+
+𓈒ㅤ　osdd sys . be mindful !　𓏏𓏏　
   </div>
 
 [![Untitled1327-20251217234828.png](https://i.postimg.cc/q7BLzMbV/Untitled1327-20251217234828.png)](https://postimg.cc/bZMb58f3)
