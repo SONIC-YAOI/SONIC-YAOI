@@ -3,6 +3,7 @@
 <div align="center">
 
 current fronts : syc n katsuki
+
 ![](https://komarev.com/ghpvc/?username=PLUZ-ULTRA&color=a8430c&style=for-the-badge&label=⌗+extras&base=18
 )
   
