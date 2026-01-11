@@ -13,6 +13,7 @@
   
 <div align="center">
   <img width="732" height="52" alt="image" src="https://github.com/user-attachments/assets/b805d398-1a72-4e26-8d9c-01c210187058" />
+  
 <strong> PT INFO </strong>
   
 - I sit near trees most of the time, please do not be afraid to interact with me or sit, only ask me if you catch me with others.
