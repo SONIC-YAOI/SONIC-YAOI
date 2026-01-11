@@ -1,6 +1,6 @@
 <div align="center">
 <img width="400" height="225" alt="image" src="https://64.media.tumblr.com/d56a338249ff5e076deec0f6267bd0a0/52ccef36b2d3dccf-b5/s400x600/45487ca7d8e8fd2c73a18cb19bfd313b6031f1e9.gifv" />
-  ![](https://komarev.com/ghpvc/?username=PLUZ-ULTRA&color=660e09&style=for-the-badge&label=I+AM+THE+ULTIMATE+LIFEFORM+.&base=99000&abbreviated=true)
+  
 <img width="732" height="52" alt="image" src="https://github.com/user-attachments/assets/b805d398-1a72-4e26-8d9c-01c210187058" />
 
   💥  syc / stink !! EN/ID
