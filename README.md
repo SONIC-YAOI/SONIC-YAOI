@@ -1,8 +1,8 @@
 <div align="center">
-  ![](https://64.media.tumblr.com/d56a338249ff5e076deec0f6267bd0a0/52ccef36b2d3dccf-b5/s640x960/81895d6b5bc0c0f0703bfa35dce46c8d4f3f5e4b.gifv) 
+  all a wip
 
   
-  📚  syc / stink !! EN/ID
+  💥  syc / stink !! EN/ID
  
   ╰╮00﹒he they genderfluid \ 16
   
