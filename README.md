@@ -19,7 +19,7 @@
   
 <strong> PT INFO </strong>
   
-- I sit near trees most of the time, please do not be afraid to interact with me or sit, only ask me if you catch me with others.
+- Always wandering, but if u see me alone, please do not be afraid to interact with me or sit, only ask me if you catch me with others.
 - Don't flirt with me, I am taken. I'm also not weird in that freaky way, so if you do make those jokes, I likely won't make them back
 - Very online but I can be very offline, if you want to be in contact, my discord is "xarvc."
 - I am an introvert, I don't like to initiate interactions unless I know you're alone or you're okay with it. So if you want to interact with me, don't wait for me to walk up to you. My only sign of interaction will be from crowns or signing atabooks
