@@ -1,7 +1,5 @@
 <div align="center">
-<img width="400" height="225" alt="image" src="https://64.media.tumblr.com/d56a338249ff5e076deec0f6267bd0a0/52ccef36b2d3dccf-b5/s400x600/45487ca7d8e8fd2c73a18cb19bfd313b6031f1e9.gifv" />
-  
-  platonic shadouge friendship my favs.
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lancelot&pause=1000&color=F71576&width=435&lines=World's+Greatest+Thief.;'+All+of+The+World's+Gems+Are+Mine+To+Keep!+%22)](https://git.io/typing-svg)
   
 <img width="732" height="52" alt="image" src="https://github.com/user-attachments/assets/b805d398-1a72-4e26-8d9c-01c210187058" />
 
