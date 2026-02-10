@@ -13,7 +13,7 @@ $\color{#eb57a1}{Syc~/}$ $\color{#eb57a1}{Stink}$
 
 $\color{#ffa1dc}{Feel~free}$ $\color{#ffa1dc}{to}$ $\color{#ffa1dc}{sit}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{me}$ $\color{#ffa1dc}{when}$ $\color{#ffa1dc}{alone.}$ $\color{#ffa1dc}{Please}$ $\color{#ffa1dc}{ask}$ $\color{#ffa1dc}{if}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{friends.}$
 
-$\color{#ffa1dc}{OSDD~sys,}$ $\color{#ffa1dc}{therefore,}$ $\color{#ffa1dc}{sometimes}$ $\color{#ffa1dc}{my}$ $\color{#ffa1dc}{personality}$ $\color{#ffa1dc}{and}$ $\color{#ffa1dc}{mood}$ $\color{#ffa1dc}{may}$ $\color{#ffa1dc}{differ.}$ $\color{#ffa1dc}{(Not dramatically)}$ $\color{#ffa1dc}{Please}$ $\color{#ffa1dc}{iwc.}$
+$\color{#ffa1dc}{OSDD~sys,}$ $\color{#ffa1dc}{therefore,}$ $\color{#ffa1dc}{sometimes}$ $\color{#ffa1dc}{my}$ $\color{#ffa1dc}{personality}$ $\color{#ffa1dc}{and}$ $\color{#ffa1dc}{mood}$ $\color{#ffa1dc}{may}$ $\color{#ffa1dc}{differ}$ $\color{#ffa1dc}{(Not dramatically.)}$ $\color{#ffa1dc}{Please}$ $\color{#ffa1dc}{iwc.}$
 </div>
 
 ![](https://64.media.tumblr.com/e036e16b7246aa9c06712484de96761a/5c946af0eadf9488-bb/s2048x3072/0cdcc9dbea4f283ee89303fa865557db593ef82f.pnj)
