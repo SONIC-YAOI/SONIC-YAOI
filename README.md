@@ -15,7 +15,7 @@ $\color{#ffa1dc}{Feel~free}$ $\color{#ffa1dc}{to}$ $\color{#ffa1dc}{sit}$ $\colo
 
 $\color{#ffa1dc}{OSDD~sys,}$ $\color{#ffa1dc}{therefore,}$ $\color{#ffa1dc}{sometimes}$ $\color{#ffa1dc}{my}$ $\color{#ffa1dc}{personality}$ $\color{#ffa1dc}{and}$ $\color{#ffa1dc}{mood}$ $\color{#ffa1dc}{may}$ $\color{#ffa1dc}{differ}$ $\color{#ffa1dc}{(not}$ $\color{#ffa1dc}{dramatically.)}$ $\color{#ffa1dc}{Still,}$ $\color{#ffa1dc}{please}$ $\color{#ffa1dc}{iwc.}$
 
-$\color{#ffa1dc}{Please}$ $\color{#ffa1dc}{refrain}$ $\color{#ffa1dc}{from}$ $\color{#ffa1dc}{flirting}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{me!}$ $\color{#ffa1dc}{I'm}$ $\color{#ffa1dc}{okay}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{being}$ $\color{#ffa1dc}{sat}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{according}$ $\color{#ffa1dc}{to}$ $\color{#ffa1dc}{ships}$ $\color{#ffa1dc}{though!}$
+$\color{#ffa1dc}{Please}$ $\color{#ffa1dc}{refrain}$ $\color{#ffa1dc}{from}$ $\color{#ffa1dc}{flirting}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{me!}$ $\color{#ffa1dc}{I'm}$ $\color{#ffa1dc}{okay}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{being}$ $\color{#ffa1dc}{sat}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{according}$ $\color{#ffa1dc}{to}$ $\color{#ffa1dc}{ships}$ $\color{#ffa1dc}{though!}$  $\color{#ffa1dc}{(ie.}$ $\color{#ffa1dc}{you're}$ $\color{#ffa1dc}{Knuckles}$ $\color{#ffa1dc}{while}$ $\color{#ffa1dc}{sitting}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{me}$ $\color{#ffa1dc}{in}$ $\color{#ffa1dc}{my}$ $\color{#ffa1dc}{Rouge}$ $\color{#ffa1dc}{skin.)}$
 </div>
 
 ![](https://64.media.tumblr.com/e036e16b7246aa9c06712484de96761a/5c946af0eadf9488-bb/s2048x3072/0cdcc9dbea4f283ee89303fa865557db593ef82f.pnj)
