@@ -9,7 +9,7 @@ redoing
 
 ![](https://64.media.tumblr.com/b2c49e49829093a6061bcb0fe7ed0a68/28e32c6de7a10c9d-8e/s2048x3072/f20a028eb1495fd2628ca67087935a69ca01aa2a.pnj)
 
-$\color{#eb57a1}{Syc~/~Stink}$
+$\color{#eb57a1}{Syc~or~Stink}$
 $\color{#ffa1dc}{Feel~free~to~sit~with~me~when~I'm~alone.~Please~ask~if~I~am~sitting~with~friends}$
 $\color{#ffa1dc}{wip}$
 </div>
