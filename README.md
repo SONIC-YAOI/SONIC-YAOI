@@ -10,4 +10,3 @@ redoing
 ![](https://64.media.tumblr.com/e036e16b7246aa9c06712484de96761a/5c946af0eadf9488-bb/s2048x3072/0cdcc9dbea4f283ee89303fa865557db593ef82f.pnj)
 
 <div align="center">
-$\color{#60d8e6}{PT~INFO}$
