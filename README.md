@@ -9,7 +9,7 @@ redoing
 
 ![](https://64.media.tumblr.com/b2c49e49829093a6061bcb0fe7ed0a68/28e32c6de7a10c9d-8e/s2048x3072/f20a028eb1495fd2628ca67087935a69ca01aa2a.pnj)
 
-$\color{#eb57a1}{Syc~Stink}$
+$\color{#eb57a1}{Syc~/}$ $\color{#eb57a1}{stink}$
 </div>
 
 ![](https://64.media.tumblr.com/e036e16b7246aa9c06712484de96761a/5c946af0eadf9488-bb/s2048x3072/0cdcc9dbea4f283ee89303fa865557db593ef82f.pnj)
