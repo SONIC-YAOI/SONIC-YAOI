@@ -5,7 +5,7 @@ redoing
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lancelot&size=26&pause=1000&color=F71576&center=true&vCenter=true&width=435&lines=World's+Greatest+Thief.;'+All+of+The+World's+Gems+Are+Mine+To+Keep!+%22)](https://git.io/typing-svg)
 
-![](https://images-ext-1.discordapp.net/external/r6GwiF6IwvPFPo4ivikxGajq2EZahY_yKcemGm-S5Mg/https/i.postimg.cc/x8j5Y5TP/Untitled1359-20260210234324.png?format=webp&quality=lossless&width=1360&height=1360)
+![](https://images-ext-1.discordapp.net/external/r6GwiF6IwvPFPo4ivikxGajq2EZahY_yKcemGm-S5Mg/https/i.postimg.cc/x8j5Y5TP/Untitled1359-20260210234324.png?format=webp&quality=lossless&width=1360&height=1360#360x360)
 
 </div>
 
