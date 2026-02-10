@@ -1,4 +1,3 @@
-<img width="2249" height="885" alt="image" src="https://github.com/user-attachments/assets/0b66e7d5-34a4-4ed5-9876-7d200e9bbdf3" />redoing
 ![](https://64.media.tumblr.com/9054ab402d1ab5a3510101ddbe7cff11/5c946af0eadf9488-7a/s2048x3072/f4dece85fefb233bc732056cfa7eb405e3eda634.pnj)
 
 <div align="center">
