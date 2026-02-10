@@ -9,7 +9,7 @@ redoing
 
 ![](https://64.media.tumblr.com/b2c49e49829093a6061bcb0fe7ed0a68/28e32c6de7a10c9d-8e/s2048x3072/f20a028eb1495fd2628ca67087935a69ca01aa2a.pnj)
 
-$\color{#eb57a1}{Syc~/}$ $\color{#eb57a1}{Stink}$ $\color{#ffa1dc}{|}$ $\color{#ffa1dc}{16}$ $\color{#ffa1dc}{y/o,}$ $\color{#ffa1dc}{-13}$ $\color{#ffa1dc}{dni/iwc}$
+$\color{#eb57a1}{Syc~/}$ $\color{#eb57a1}{Stink}$ $\color{#ffa1dc}{|}$ $\color{#eb57a1}{16}$ $\color{#eb57a1}{y/o,}$ $\color{#eb57a1}{-13}$ $\color{#eb57a1}{dni/iwc}$
 
 $\color{#ffa1dc}{Feel~free}$ $\color{#ffa1dc}{to}$ $\color{#ffa1dc}{sit}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{me}$ $\color{#ffa1dc}{when}$ $\color{#ffa1dc}{alone.}$ $\color{#ffa1dc}{Please}$ $\color{#ffa1dc}{ask}$ $\color{#ffa1dc}{if}$ $\color{#ffa1dc}{with}$ $\color{#ffa1dc}{friends.}$
 
